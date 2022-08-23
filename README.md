@@ -1,0 +1,3 @@
+- Hi, I’m @AincrixGames
+- I’m interested in Games,Arts,and animations
+- I’m currently learning animating 
